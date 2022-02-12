@@ -2,7 +2,7 @@
 
     
 ## شـكرا للـمطورين
-* [جـاسم](https://t.me/SBB_B) 
+* [منتظر](https://t.me/SBB_B) 
 * [مـحمد](https://t.me/RR9R7)
 * [جـمثون](https://t.me/JMTHON)
 
